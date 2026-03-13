@@ -14,4 +14,4 @@ I am Sumedha Mukherjee, a UI/UX Designer. I'm passionate about creating clean, u
 
 
 ## 📞 Contact
-Email: sumedhamukherjee21@gmail.com  
+Email: sumedhamukherjee.04@gmail.com  
